@@ -1,4 +1,4 @@
-# 
+# Secret Vegas Pro pour PC extensions est le meilleur Vegas Pro pour PC extensions avec support des plugins et ralenti. Sécurisé, fiable et optimisé pour des performances maximales.
 
 
 
